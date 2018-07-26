@@ -1,0 +1,1 @@
+[바로가기](http://blog.geun.kr/247)
